@@ -1,3 +1,6 @@
+<a href="https://t.ly/CH2w8"><img src="https://romabet.click/wp-content/uploads/2022/01/giris.gif"></a>
+<a href="https://t.ly/CH2w8"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRbY_UwF4wAzfTtINzWVVQwXcBBA0AtqpHgJYmFqqx6_QkKW4KgkBx67a0S2fec9M_50dA&usqp=CAU"></a>
+
 # TİPOBET | TİPOBET GİRİŞ | TİPOBET ERİŞİM
 Tipobet, Türkiye’de online bahis sektörünün en köklü ve en bilinen platformlarından biri olarak uzun yıllardır hizmet vermektedir. Güçlü altyapısı, yüksek bahis oranları, zengin oyun içeriği ve kullanıcı memnuniyeti odaklı yaklaşımı ile Tipobet, her seviyeden bahisçi için ideal bir tercihtir.
 
